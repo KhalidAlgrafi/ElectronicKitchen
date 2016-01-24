@@ -1,2 +1,0 @@
-# ElectronicKitchen
-buh xd
